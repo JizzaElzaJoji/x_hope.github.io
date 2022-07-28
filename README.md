@@ -1,6 +1,5 @@
 ![IMG_20220728_092545](https://user-images.githubusercontent.com/110090866/181433227-7751c7fd-f2d8-4c1f-af83-62eabd0cb739.jpg)
-## 🚀 About Me
-
+WELCOME!!
 I'm a Ethical Hacker...
 
 
